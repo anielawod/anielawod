@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @anielawod
+- 👀 I’m interested in finishing my maths degree!
+- 🌱 I’m currently learning python as one of my modules
+- 📫 How to reach me 
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: ...
